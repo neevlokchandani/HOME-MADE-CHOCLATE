@@ -1,4 +1,6 @@
-Red velvet cake is much more than vanilla cake tinted red. This recipe produces the best red velvet cake with superior buttery, vanilla, and cocoa flavors, as well as a delicious tang from buttermilk. My trick is to whip the egg whites, which guarantees a smooth velvet crumb.
+A little bit of sweetness can drown out a whole lot of bitterness.
+
+THIS IS THE RECIPE OF CHOCKLATE:-
 
 
 Ingredients
@@ -25,4 +27,4 @@ Now, put the chocolate paste in the bowl and then heat until the mixture is as j
 Step 3 Pour the mixture in the moulds and refrigerate
 Then warm the milk to room temperature. Add sugar, flour and milk to the paste and mix the batter well so that no lumps are formed. Now pour the mixture into chocolate moulds and place it in the fridge till they become solid. Take the pieces out and munch away!         
 
-and your RED VELVET IS READY SARAH MAM :-)
+and your HOME MADE CHOCKLATE IS READY SARAH MAM :-)
