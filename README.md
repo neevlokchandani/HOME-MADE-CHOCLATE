@@ -2,39 +2,27 @@ Red velvet cake is much more than vanilla cake tinted red. This recipe produces 
 
 
 Ingredients
-Cake:
+Chocklate:
 
- 2 and 1/2 cups (340g) all-purpose flour
- 1/4 cup (35g) cornstarch
- 2 tablespoons (12g) unsweetened cocoa powder (any kind works)
- 1 teaspoon baking soda
- 3/4 teaspoon salt
- 1/2 cup (1 stick/115g) unsalted butter, softened to room temperature
- 2 and 1/8 cups (425g) granulated sugar
- 1 cup (240 ml) vegetable or canola oil
- 3 large eggs
- 2 teaspoons vanilla extract
- 1 and 1/4 teaspoons distilled wine vinegar
- 2-3 tablespoons red food coloring
- 1 cup (240 ml) buttermilk
+ 2 cup cocoa powder
+1/2 cup sugar
+1/4 teaspoon flour
+3/4 cup butter
+2/3 cup milk
+1 cup Water
 
 
 Recipe:
 
-Cake:
+chocklate:
 
- 2 and 1/2 cups (340g) all-purpose flour
- 1/4 cup (35g) cornstarch
- 2 tablespoons (12g) unsweetened cocoa powder (any kind works)
- 1 teaspoon baking soda
- 3/4 teaspoon salt
- 1/2 cup (1 stick/115g) unsalted butter, softened to room temperature
- 2 and 1/8 cups (425g) granulated sugar
- 1 cup (240 ml) vegetable or canola oil
- 3 large eggs
- 2 teaspoons vanilla extract
- 1 and 1/4 teaspoons distilled wine vinegar
- 2-3 tablespoons red food coloring
- 1 cup (240 ml) buttermilk
+step 1 Mix the ingredients
+Place cocoa and butter in processor and mix until they form a paste. Now, heat a pan and fill it about 1/4 full with water and then place the bowl on top of the pan.            
+
+Step 2 Whisk the chocolate paste
+Now, put the chocolate paste in the bowl and then heat until the mixture is as just hot. Put the mixture back in the processor and mix till smooth.            
+
+Step 3 Pour the mixture in the moulds and refrigerate
+Then warm the milk to room temperature. Add sugar, flour and milk to the paste and mix the batter well so that no lumps are formed. Now pour the mixture into chocolate moulds and place it in the fridge till they become solid. Take the pieces out and munch away!         
 
 and your RED VELVET IS READY SARAH MAM :-)
